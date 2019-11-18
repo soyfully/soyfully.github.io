@@ -1,2 +1,2 @@
-# soifolio.github.io
+# soyfully.github.io
 KIM SOI | PORTFOLIO
